@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-LOLJ901105HSLRZN04
+LOLJ901105HSLRZN04
